@@ -1,4 +1,4 @@
-Alonso          
+Alonso Lagos         
 Nicolás Sandoval 
 
 Principales actividades
